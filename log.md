@@ -34,3 +34,7 @@
 11/9/2025
 
 not enough progress today on much power shell projects are important and solving the issues you encounter on daily bases are important
+
+15/9/2025
+
+keep at it you cannn do it
