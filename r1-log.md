@@ -9,3 +9,6 @@ Started a Weather App. Worked on the draft layout of the app, struggled with Ope
 
 ### R1D2
 add exe to a pything script which saves me time and energy
+
+day 15/9/2025 
+more html getting back into it ltes go
