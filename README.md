@@ -59,3 +59,8 @@ test test test
 - If you have any questions or ideas about 100DaysOfCode (or other ideas), feel free to reach out to me on Twitter: [@ka11away](https://twitter.com/ka11away)
 - If you like this repo and find it useful, please consider &#9733; starring it (on top right of the page) and forking it :)
 - test test
+- have not been success furl this week no progress whatso ever
+- so disappoints, i can put in 1 hour a day no issues on exercise and activities but really struggle on this i think i might have to sign up for a course and put some money into it or ill just fucking never care about it
+
+- i dont know
+- 
